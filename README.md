@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @H0bbyistPl4y3r
+- 👀 I’m interested in Video Games
+- 🌱 I’m currently doing a (solo) private server for FFXI
